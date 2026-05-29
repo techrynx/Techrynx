@@ -1,7 +1,7 @@
 <img width="735" height="420" alt="tech" src="https://github.com/user-attachments/assets/0d7976ae-63f4-4122-9eef-7c062c096148" />
 <h1><b><i>Please read before interacting! </i></b></h1>
 
-- I allow cuds at all times, but <b><i>please</i></b> leave the other side of the tree alone, as they are <b><i>not</i></b> comfortable with touch and/or c+h. But I'm fine with it at all times, there's no need to ask it.
+- I allow cuds at all times, but <b><i>please</i></b> leave the other side of the tree alone, as they are <b><i>not</i></b> comfortable with touch and/or c+h.
 
 - I'm really bad at interacting so if you want to talk you'll have to make the first move, I'm horrible at starting conversations (please try to use tonetags with me, idk social cues and might take everything seriously).
 
