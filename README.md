@@ -3,7 +3,7 @@
 
 - I allow cuds at all times, but <b><i>please</i></b> leave the other side of the tree alone, as they are <b><i>not</i></b> comfortable with touch and/or c+h.
 
-- I'm really bad at interacting so if you want to talk you'll have to make the first move, I'm horrible at starting conversations (please try to use tonetags with me, idk social cues and might take everything seriously).
+- I'm really bad at interacting so if you want to talk you'll have to make the first move, I'm horrible at starting conversations.
 
 - If you're DID system please <b><i>interact with extreme care</i></b>, I might not be nice to you guys specifically because of past experience.
 
@@ -18,7 +18,7 @@
 <h2><b><i>Keep in mind!</i></b></h2>
 - <b><i>I am an adult</i></b>, but it doesn't mean i'm not safe to interact, just as a minor please be more careful for your own safety as not every adult is safe and responsible.
 <br></br>
-- I have ADHD and Autism so I do get distracted a lot, please be patient.
+- I have ADHD so I do get distracted a lot, please be patient.
 <br></br>
 - I bully people for fun so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything I say.
 <br></br>
