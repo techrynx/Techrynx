@@ -22,7 +22,7 @@
 <br></br>
 - I bully people for fun so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything I say.
 <br></br>
-- I get <b><i>extremely uncomfortable</i></b> with any sexual topics which is the main reason why I don't go to the 18+ servers. Stop telling me to go there, I am uncomfortable with 18+ topics and I always have been.
+- I get <b><i>extremely uncomfortable</i></b> with any sexual topics which is the main reason why I don't go to the 18+ servers. Stop telling me to go there just because I'm an adult.
 
 <h3><b><i>Extra</i></b></h3>
 - Me and Techno are so similar to each other, let it be humor, personality or even the way our lives went despite being extremely far from even relating, that I'm fairly positive we are some kind of <i>twin souls</i>. I am <i>not at all</i> trying to be impersonating whatsoever, I just find it really weird and fascinating how similar people's lives can be.
