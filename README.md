@@ -35,3 +35,9 @@
 
 <br></br>
 <h3><b><i>Also shoutout to the tree cult</i></b></h3>
+
+https://github.com/SincerelyWilbur
+https://github.com/maggotingg
+https://github.com/velleitywisp
+
+Can't wait to live in the same house in 7 years lmao
