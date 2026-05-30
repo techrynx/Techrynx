@@ -37,7 +37,11 @@
 <h3><b><i>Also shoutout to the tree cult</i></b></h3>
 
 https://github.com/SincerelyWilbur
+<br></br>
 https://github.com/maggotingg
+<br></br>
 https://github.com/velleitywisp
-
+<br></br>
++ Rowan and Niki
+<br></br>
 Can't wait to live in the same house in 7 years lmao
