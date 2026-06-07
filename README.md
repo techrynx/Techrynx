@@ -20,7 +20,7 @@
 <br></br>
 - I have ADHD so I do get distracted a lot, please be patient.
 <br></br>
-- Ships DNI please
+- <b><i>Ships DNI</b></i>
 <br></br>
 - I bully people for fun so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything I say.
 <br></br>
