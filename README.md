@@ -5,7 +5,7 @@
 
 - I absolutely love emerald duo and it holds a really special place in my heart. I really admire their loyalty to each other and the way they are so comfortable near one another. <i> Stictrly </i> platonic. Please Philza fictkins + cosplayers int I love y'all /p
 
-- I absolutely adore Tax duo and I am currently catching up on the UU smp lore, might see me in my Eggchan cos once or twice.
+- I <b><i>adore</i></b> Tax duo and I am currently catching up on the UU smp lore, might see me in my Eggchan cos once or twice.
 
 - I'm really bad at interacting so if you want to talk you'll have to make the first move, I'm horrible at starting conversations.
 
