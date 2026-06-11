@@ -11,6 +11,8 @@
 
 - If you're DID system please <b><i>interact with extreme care</i></b>, I might not be nice to you guys specifically because of past experience.
 
+- Do <b><i>NOT</i></b> copy, I will lowkey get upset with you
+
 - Will I add you as a friend? No.
   
 <sub>not unless I've known you for more than a couple days and I <i>actually</i> like your personality and you prove that you are worth keeping around </sub>
