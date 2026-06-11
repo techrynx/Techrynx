@@ -18,7 +18,7 @@
 
 
 <h2><b><i>Keep in mind!</i></b></h2>
-- <b><i>I am an adult</i></b>, but it doesn't mean i'm not safe to interact, just as a minor please be more careful for your own safety as not every adult is safe and responsible.
+- <b><i>I am an adult</i></b>, but it doesn't mean i'm not safe to interact, just as a minor please be more careful for your own safety as not every adult is safe and responsible. DNI under the age of 14 PLEASE
 <br></br>
 - I have ADHD so I do get distracted a lot, please be patient.
 <br></br>
