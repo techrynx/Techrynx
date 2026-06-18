@@ -28,21 +28,20 @@
 - I bully people for fun and it's all just jokes, I never actually mean it, so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything said.
 <br></br>
 - I get <b><i>extremely uncomfortable</i></b> with any sexual topics which is the main reason why I don't go to the 18+ servers. Stop telling me to go there just because I'm an adult.
-<br></br>
+  <h2></h2>
 <img width="864" height="585" alt="min wem" src="https://github.com/user-attachments/assets/46408d44-f195-4806-a404-767aa92cb909" />
-<br></br>
+    <h2></h2>
 <h3><b><i>Extra</i></b></h3>
 - You've probably seen me around a couple times. I am dedicated to get 10K hours on the game. Why? I have no idea I'm way too far into the bit to stop so might as well...
 <br></br>
 - I love End Trio (UU smp) and I do constantly watch both Wemmbu and MinuteTech
 <br></br>
 - I am aromantic asexual please respect that
-<br></br>
+    <h2></h2>
 <img width="500" height="362" alt="let-that-sink-in-quote-1" src="https://github.com/user-attachments/assets/f861a22e-c172-44c7-8fed-a4428fe7965d" />
-
 <br></br>
-<h3><b><i>Also shoutout to the tree cult</i></b></h3>
-
+<h2><b><i>Also shoutout to the tree cult</i></b></h2>
+  
 https://github.com/SincerelyWilbur <br></br>
 https://github.com/maggotingg <br></br>
 https://github.com/velleitywisp <br></br>
