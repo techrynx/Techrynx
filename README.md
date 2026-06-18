@@ -1,4 +1,5 @@
-<img width="735" height="420" alt="tech" src="https://github.com/user-attachments/assets/0d7976ae-63f4-4122-9eef-7c062c096148" />
+<img width="736" height="245" alt="tech2" src="https://github.com/user-attachments/assets/4610b11d-daf3-49d6-9df1-f76a9ec37610" />
+
 <h1><b><i>Please read before interacting! </i></b></h1>
 
 - I allow cuds at all times, but <b><i>please</i></b> leave the other side of the tree alone, as they are <b><i>not</i></b> comfortable with touch and/or c+h.
