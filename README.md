@@ -3,9 +3,7 @@
 
 - I allow cuds at all times, but <b><i>please</i></b> leave the other side of the tree alone, as they are <b><i>not</i></b> comfortable with touch and/or c+h.
 
-- I absolutely love emerald duo and it holds a really special place in my heart. I really admire their loyalty to each other and the way they are so comfortable near one another. <i> Stictrly </i> platonic. Please Philza fictkins + cosplayers int I love y'all /p
-
-- I <b><i>adore</i></b> Tax duo // UU smp
+- Feel free to int any time, you might get a super late reply if I'm on mc hardtrying
 
 - I'm really bad at interacting so if you want to talk you'll have to make the first move, I'm horrible at starting conversations.
 
@@ -24,18 +22,20 @@
 <br></br>
 - I have ADD and Autism so I do get distracted a lot and I might go non-verbal or just generally suck at social cues, please be patient.
 <br></br>
-- <b><i>Ships DNI</b></i>
+- <b><i>Ships, wss/sss, homophobic ppl, racist ppl, ai supporters, boundary breakers DNI</b></i>
 <br></br>
-- I bully people for fun and it's all just jokes, I never actually mean it, so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything I say.
+- I bully people for fun and it's all just jokes, I never actually mean it, so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything said.
 <br></br>
 - I get <b><i>extremely uncomfortable</i></b> with any sexual topics which is the main reason why I don't go to the 18+ servers. Stop telling me to go there just because I'm an adult.
-
+<br></br>
+<img width="864" height="585" alt="min wem" src="https://github.com/user-attachments/assets/46408d44-f195-4806-a404-767aa92cb909" />
+<br></br>
 <h3><b><i>Extra</i></b></h3>
 - You've probably seen me around a couple times. I am dedicated to get 10K hours on the game. Why? I have no idea I'm way too far into the bit to stop so might as well...
 <br></br>
-- Me and Techno are so similar to each other, let it be humor, personality or even the way our lives went despite being extremely far from even relating, that I'm fairly positive we are some kind of <i>twin souls</i>. I am <i>not at all</i> trying to be impersonating whatsoever, I just find it really weird and fascinating how similar people's lives can be.
+- I love End Trio (UU smp) and I do constantly watch both Wemmbu and MinuteTech
 <br></br>
-- I am aromantic asexual.
+- I am aromantic asexual please respect that
 <br></br>
 <img width="500" height="362" alt="let-that-sink-in-quote-1" src="https://github.com/user-attachments/assets/f861a22e-c172-44c7-8fed-a4428fe7965d" />
 
@@ -47,4 +47,4 @@ https://github.com/maggotingg <br></br>
 https://github.com/velleitywisp <br></br>
 (+ Rowan and Niki)
 <br></br>
-Can't wait to live in the same house in 7 years lmao
+Can't wait to live in the same house in 2033 lmao
