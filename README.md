@@ -34,7 +34,7 @@
 <h3><b><i>Extra</i></b></h3>
 - You've probably seen me around a couple times. I am dedicated to get 10K hours on the game. Why? I have no idea I'm way too far into the bit to stop so might as well...
 <br></br>
-- I love End Trio (UU smp) and I do constantly watch both Wemmbu and MinuteTech
+- I love End Trio (UU smp) and I do follow both Wemmbu and MinuteTech
 <br></br>
 - I am aromantic asexual please respect that
     <h2></h2>
