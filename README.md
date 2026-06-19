@@ -10,7 +10,7 @@
 
 - If you're DID system please <b><i>interact with extreme care</i></b>, I might not be nice to you guys specifically because of past experience.
 
-- Do <b><i>NOT</i></b> copy, I will lowkey get upset with you
+- Do <b><i>NOT</i></b> copy
 
 - Will I add you as a friend? No.
   
@@ -29,7 +29,7 @@
 <br></br>
 - I get <b><i>extremely uncomfortable</i></b> with any sexual topics which is the main reason why I don't go to the 18+ servers. Stop telling me to go there just because I'm an adult.
   <h2></h2>
-<img width="864" height="585" alt="min wem" src="https://github.com/user-attachments/assets/46408d44-f195-4806-a404-767aa92cb909" />
+<img width="3214" height="1777" alt="wifies" src="https://github.com/user-attachments/assets/79c33c05-10d4-41d9-a6dd-ae70cecfdde9" />
     <h2></h2>
 <h3><b><i>Extra</i></b></h3>
 - You've probably seen me around a couple times. I am dedicated to get 10K hours on the game. Why? I have no idea I'm way too far into the bit to stop so might as well...
