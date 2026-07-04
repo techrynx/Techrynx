@@ -45,7 +45,8 @@
 https://github.com/SincerelyWilbur <br></br>
 https://github.com/maggotingg <br></br>
 https://github.com/velleitywisp <br></br>
-(+ Rowan and Niki)
+https://github.com/ayearner <br></br>
+(+ Rowan)
 <br></br>
 Can't wait to live in the same house in 2033 lmao
 <br></br>
