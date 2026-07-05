@@ -4,7 +4,7 @@
 
 - I allow cuds at all times, but <b><i>please</i></b> leave the other side of the tree alone, as they are <b><i>not</i></b> comfortable with touch and/or c+h.
 
-- Feel free to int any time, you might get a super late reply if I'm on mc hardtrying
+- Feel free to int any time, you might get a super late reply if I'm on mc hardtrying. I am mainly offtab all the time but I have 3 monitors so I'll see it eventually lmao.
 
 - I'm really bad at interacting so if you want to talk you'll have to make the first move, I'm horrible at starting conversations.
 
