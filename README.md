@@ -2,7 +2,7 @@
 <img width="736" height="245" alt="tech2" src="https://github.com/user-attachments/assets/4610b11d-daf3-49d6-9df1-f76a9ec37610" />
 <h1></h1>
 
-- I allow cuds at all times, but <b><i>please</i></b> leave the other side of the tree alone, as they are <b><i>not</i></b> comfortable with touch and/or c+h.
+- I allow cuds at all times, no need to ask :) 
 
 - Feel free to int any time, you might get a super late reply if I'm on mc hardtrying. I am mainly offtab but I'll see it eventually.
 
