@@ -8,7 +8,7 @@
 
 - I'm really bad at interacting so if you want to talk you'll have to make the first move, I'm horrible at starting conversations.
 
-- If you're DID system please <b><i>interact with extreme care</i></b>, I might not be nice to you guys specifically because of past experience.
+- If you're DID system please <b><i>interact with extreme care</i></b>, I might not be nice to you guys specifically because of past experience, but it's not anything personal.
 
 - Do <b><i>NOT</i></b> copy
 
