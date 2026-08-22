@@ -38,7 +38,7 @@
     <h2></h2>
 <img width="500" height="362" alt="let-that-sink-in-quote-1" src="https://github.com/user-attachments/assets/f861a22e-c172-44c7-8fed-a4428fe7965d" />
 <br></br>
-<h2><b><i>Also shoutout to the tree cult</i></b></h2>
+<h2><b><i>Also shoutout to the tree group I guess because somebody got offended by how my friend group decided to call itself</i></b></h2>
   
 https://github.com/SincerelyWilbur <br></br>
 https://github.com/maggotingg <br></br>
