@@ -38,7 +38,8 @@
     <h2></h2>
 <img width="500" height="362" alt="let-that-sink-in-quote-1" src="https://github.com/user-attachments/assets/f861a22e-c172-44c7-8fed-a4428fe7965d" />
 <br></br>
-<h2><b><i>Also shoutout to the tree group I guess because somebody got offended by how my friend group decided to call itself</i></b></h2>
+<h2><b><i>Also shoutout to the tree group I guess</i></b></h2>
+ps. Not every cult is bad, yes there are horrible ones, but there are also ones that feed the poor or don't at all practice religious activities or wish harm on other people and are easily leavable. The word "cult" is also often used as a methaphor. We are not an actual cult and will never will be and would never want to be like the ones "anonymous" might be thinking of. Hope that cleared up for you. (yes it is that serious)
   
 https://github.com/SincerelyWilbur <br></br>
 https://github.com/maggotingg <br></br>
