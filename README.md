@@ -40,6 +40,7 @@
 <br></br>
 <h2><b><i>Also shoutout to the tree group I guess</i></b></h2>
 ps. Not every cult is bad, yes there are horrible ones, but there are also ones that feed the poor or don't at all practice religious activities or wish harm on other people and are easily leavable. The word "cult" is also often used as a methaphor. We are not an actual cult and will never will be and would never want to be like the ones "anonymous" might be thinking of. Hope that cleared up for you. (yes it is that serious)
+  <br></br>
   
 https://github.com/SincerelyWilbur <br></br>
 https://github.com/maggotingg <br></br>
