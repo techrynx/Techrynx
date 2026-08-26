@@ -29,7 +29,9 @@
 <br></br>
 - I get <b><i>extremely uncomfortable</i></b> with any sexual topics which is the main reason why I don't go to the 18+ servers. Stop telling me to go there just because I'm an adult.
   <h2></h2>
-<img width="1024" height="681" alt="20260710_194118" src="https://github.com/user-attachments/assets/8e781449-0420-4fca-80d2-f9e855f916eb" />
+  Me & my chungie Egg
+  <img width="2048" height="1536" alt="me n egg" src="https://github.com/user-attachments/assets/b0c1c312-ca25-4c7b-9ff0-20ed19bc9626" />
+  lowkey lazy fanart by yours truly
     <h2></h2>
 <h3><b><i>Extra</i></b></h3>
 - You've probably seen me around a couple times. I am dedicated to get 10K hours on the game. Why? I have no idea I'm way too far into the bit to stop so might as well...
