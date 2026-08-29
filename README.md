@@ -2,48 +2,33 @@
 <img width="736" height="245" alt="tech2" src="https://github.com/user-attachments/assets/4610b11d-daf3-49d6-9df1-f76a9ec37610" />
 <h1></h1>
 
-- I allow cuds at all times, no need to ask :) 
+- I allow cuds at all times to anyone. (Even when I'm in DNI, just don't try to talk to me and you're chilling.)
 
-- Feel free to int any time, you might get a super late reply if I'm on mc hardtrying. I am mainly offtab but I'll see it eventually.
+- Feel free to interact I swear I don't bite. I'm mainly off tab but I will eventually see it. Whisper to catch my attention!
 
-- I'm really bad at interacting so if you want to talk you'll have to make the first move, I'm horrible at starting conversations.
+- Do NOT copy without permission, it seriously upsets me.
 
-- If you're DID system please <b><i>interact with extreme care</i></b>, I might not be nice to you guys specifically because of past experience, but it's not anything personal.
+- IWEC: DID systems (nothing personal, I just had bad experience with some people, you still can be very chill.)
 
-- Do <b><i>NOT</i></b> copy
+- DNI: stated detailed on strawpage with other important info about me!
 
-- Will I add you as a friend? No.
-  
-<sub>not unless I've known you for more than a couple days and I <i>actually</i> like your personality and you prove that you are worth keeping around </sub>
-
+- Will I add you as a friend? No. Not unless I've known and talk to you for more than a couple hours and I actually like your personality and you prove that you're worth keeping around.
 
 
 <h2><b><i>Keep in mind!</i></b></h2>
-- <b><i>I am an adult</i></b>, but it doesn't mean i'm not safe to interact, just as a minor please be more careful for your own safety as not every adult is safe and responsible. <b><i>DNI under the age of 14 PLEASE</i></b>
+- <b><i>I am an adult</i></b>, but it doesn't mean i'm not safe to interact, just as a minor please be more careful for your own safety as not every adult is safe and responsible. <b><i>DNI under the age of 14 and if you're really immature PLEASE</i></b>
 <br></br>
-- I have ADHD and Autism so I do get distracted a lot and I might go non-verbal or just generally suck at social cues, please be patient.
+- I bully people for fun and it's all just jokes, I never actually mean it, so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything said and state everything very clearly so I can follow through with your boundaries.
 <br></br>
-- <b><i>Ships, wss/sss, homophobic ppl, racist ppl, ai supporters, boundary breakers DNI</b></i>
-<br></br>
-- I bully people for fun and it's all just jokes, I never actually mean it, so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything said.
-<br></br>
-- I get <b><i>extremely uncomfortable</i></b> with any sexual topics which is the main reason why I don't go to the 18+ servers. Stop telling me to go there just because I'm an adult.
+- I get <b><i>extremely uncomfortable</i></b> with any sexual topics which is the main reason why I don't go to the 18+ servers. Stop telling me to go there just because I'm an adult. It's not funny.
   <h2></h2>
   Me & my chungie Egg
   <img width="2048" height="1536" alt="me n egg" src="https://github.com/user-attachments/assets/b0c1c312-ca25-4c7b-9ff0-20ed19bc9626" />
   lowkey lazy fanart by yours truly
     <h2></h2>
-<h3><b><i>Extra</i></b></h3>
-- You've probably seen me around a couple times. I am dedicated to get 10K hours on the game. Why? I have no idea I'm way too far into the bit to stop so might as well...
-<br></br>
-- I love End Trio (UU smp) and I do follow both Wemmbu and MinuteTech
-    <h2></h2>
 <img width="500" height="362" alt="let-that-sink-in-quote-1" src="https://github.com/user-attachments/assets/f861a22e-c172-44c7-8fed-a4428fe7965d" />
 <br></br>
-<h2><b><i>Also shoutout to the Tree House I guess</i></b></h2>
-ps. Not every cult is bad, yes there are horrible ones, but there are also ones that feed the poor or don't at all practice religious activities or wish harm on other people and are easily leavable. The word "cult" is also often used as a methaphor. We are not an actual cult and will never will be and would never want to be like the ones "anonymous" might be thinking of. Hope that cleared up for you. (yes it is that serious)
-  <br></br>
-  
+<h2><b><i>Also shoutout to the Tree House</i></b></h2>
 https://github.com/SincerelyWilbur <br></br>
 https://github.com/maggotingg <br></br>
 https://github.com/velleitywisp <br></br>
