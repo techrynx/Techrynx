@@ -10,7 +10,7 @@
 
 - IWEC: DID systems (nothing personal, I just had bad experience with some people, you still can be very chill.)
 
-- DNI: stated detailed on strawpage with other important info about me!
+- DNI: stated detailed on [strawpage](https://techrynx.straw.page) with other important info about me!
 
 - Will I add you as a friend? No. Not unless I've known you and have talked to you for more than a couple hours and I actually like your personality and you prove that you're worth keeping around.
 
