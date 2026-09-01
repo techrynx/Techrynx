@@ -8,7 +8,7 @@
 
 - Do NOT copy without permission, it seriously upsets me.
 
-- IWEC: <i><b>MINORS!!</i></b> DID systems (nothing personal, I just had bad experience with some people, you still can be very chill.)
+- IWEC: <b><i>MINORS!!</i></b> DID systems (nothing personal, I just had bad experience with some people, you still can be very chill.)
 
 - DNI: stated detailed on [strawpage](https://techrynx.straw.page) with other important info about me!
 
