@@ -8,7 +8,7 @@
 
 - Do NOT copy without permission, it seriously upsets me.
 
-- IWEC: DID systems (nothing personal, I just had bad experience with some people, you still can be very chill.)
+- IWEC: MINORS!! DID systems (nothing personal, I just had bad experience with some people, you still can be very chill.)
 
 - DNI: stated detailed on [strawpage](https://techrynx.straw.page) with other important info about me!
 
@@ -16,7 +16,7 @@
 
 <h2><b><i>Keep in mind!</i></b></h2>
 
-- <b><i>I am an adult</i></b>, but it doesn't mean i'm not safe to interact, just as a minor please be more careful for your own safety as not every adult is safe and responsible. <b><i>DNI under the age of 14 and if you're really immature PLEASE</i></b>
+- <b><i>I am an adult</i></b>, but it doesn't mean I'm not safe to interact, just as a minor please be more careful for your own safety as not every adult is safe and responsible. <b><i>DNI under the age of 14 and especially if you're really immature PLEASE</i></b>
 
 - I bully people for fun and it's all just jokes, I never actually mean it, so don't get too offended when I say something, but <b><i>please</i></b> let me know if you're uncomfortable with anything said and state everything very clearly so I can follow through with your boundaries.
 
