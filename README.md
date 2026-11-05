@@ -30,15 +30,4 @@
     
 <img width="500" height="362" alt="let-that-sink-in-quote-1" src="https://github.com/user-attachments/assets/f861a22e-c172-44c7-8fed-a4428fe7965d" />
 <br></br>
-
-<h2><b><i>Also shoutout to the Tree House</i></b></h2>
-https://github.com/SincerelyWilbur <br></br>
-https://github.com/maggotingg <br></br>
-https://github.com/velleitywisp <br></br>
-https://github.com/ayearner <br></br>
-(+ Rowan)
-
-<br></br>
-Can't wait to live in the same house in 2033 lmao
-<br></br>
 <img src="https://visitor-badge.laobi.icu/badge?page_id=yourname.yourrepo" alt="visitor badge">
